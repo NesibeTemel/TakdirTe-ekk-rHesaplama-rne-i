@@ -1,0 +1,1 @@
+# TakdirTe-ekk-rHesaplama-rne-i
